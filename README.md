@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **tamoorshah462@gmail.com**
 
-- ⚡ Fun fact **Funny**
+- ⚡ Fun fact **Serious to Work**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
